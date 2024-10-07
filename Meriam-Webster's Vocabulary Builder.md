@@ -30,4 +30,20 @@ Studies have shown that the only way a new word will remain alive in your vocabu
 
 Carry this book in your shoulder bag or leave it on your night table. Whenever you find youself with a few minutes to spare, open it to the beginning of a vrief root group. (There's no real need to read the units in any particular order, since each unit is entiredly self-contained. However, studying the book straight through from the beginning will ensure that you make maximum use of it.) Pick a single word or a four-word group or an eight-word section; study it, text yourself, and then tr making up new sentences for each word. Be sure to prnounce every new word aloud at least once, along with its definition.
 
-Start using the words immediately, As soon as you feel confident with a word, start trying to work it into your writing wherever appropriate - your papers and reports, you diary and your poetry. An old saying goes, "Use it three times and it's yours." That may be, but don't stop at three. Make the words part of your working vacabulary, the words that you can not only recognize when you see or hear them but that you can comfortably call on whenever you need.
+Start using the words immediately, As soon as you feel confident with a word, start trying to work it into your writing wherever appropriate - your papers and reports, you diary and your poetry. An old saying goes, "Use it three times and it's yours." That may be, but don't stop at three. Make the words part of your working vacabulary, the words that you can not only recognize when you see or hear them but that you can comfortably call on whenever you need them. Astonish your friends, amaze your relatives, astound *yourself* (while trying not to be too much of a show-off) - and have fun!
+
+---
+*Acknowledgements*: The first edition of this book , written by Mary Wood Cornog, also benefited from the contributions of numerous members of the Merriam-Webster staff, including Michael G. Belanger, Brett P. Pamlmer, Stephen J. Perrault, and Mark A. Stevens. This new edition was edited by Mark A. Stevens, with assistance from C. Roger Davis and with the support and encouragement of Merriam-Webster's president and publisher, John M. Morse.
+
+## PRONUNCIATION SYMBOLS
+- b**a**nan**a**, c**o**llide, **a**but
+- h**u**mdr**u**m, ab**u**t
+- immediately preceding \l\, \, , , as in batt**le**, mitt**en**, eat**en**, and sometiomes op**en** , lick **and** key
+- f**ur**ther, m**er**g**er**, b**ir**d
+
+
+## UNIT 1
+> **BENE**  is Lain for "well". A ***benefit*** is a good result or effect. Something ***beneficial*** produces good results or effects. The Latin root can be heard in other languages as well: "Good!" or "Fine!" in Spanish is "Bueno!"; in French, it's "Bon!"; and in Italian, just say "Bene!"
+
+**benediction** A prayer that asks for God's blessing, expecially a prayer that concludes a worship service.
+> *The momnet the bishop had finished his benediction, she squeezed quickly out of her row and darted out the cathedral's side entrance.*
