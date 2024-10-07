@@ -1,1 +1,2 @@
-# scribe
+
+- *Merriam-Webster's Vocabulary Builder*
